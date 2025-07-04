@@ -28,8 +28,8 @@
 
 ## 📫 Connect with Me
 
-- LinkedIn: [linkedin.com/in/akilabenaragama](https://www.linkedin.com/in/akilabenaragama)  
-- Email: [akilab@gmail.com](mailto:akilab@gmail.com)
+- LinkedIn: [linkedin.com/in/akilabenaragama]([https://www.linkedin.com/in/akilabenaragama](https://www.linkedin.com/in/akila-benaragama-607ab0228/)  
+- Email: [akilabenaragama@gmail.com](mailto:akilabenaragama@gmail.com)
 
 ---
 
